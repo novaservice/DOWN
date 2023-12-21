@@ -10,4 +10,4 @@ Thank you for being a part of our community, and we hope that our paths may cros
 
 Once again, thank you for your understanding and support.
 
-Best regards, Dranca Denis-Gabriel (Founder and CEO Of novaproject securitysell & bluehost)
+Best regards, As im known .denis0 (Founder and CEO Of novaproject securitysell & bluehost)
